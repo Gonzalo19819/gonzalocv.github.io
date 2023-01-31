@@ -1,1 +1,0 @@
-# gonzalocv.github.io
